@@ -1,4 +1,4 @@
-# [DHSProgClub](dhsprogramming.com)
+# [DHSProgClub](http://dhsprogramming.com/)
 Straight out of the Code Cave/Computer County/Spinka Station
 
 •_•)
